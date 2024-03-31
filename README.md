@@ -6,4 +6,4 @@
 
 💡 I'm very interesting in startup world
 
-👨🏻‍💻 Check the most interesting project done below!
+👨🏻‍💻 Check the most interesting projects below!
